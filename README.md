@@ -1,8 +1,7 @@
-### Hi There👋.
+### Hi There👋. Iam Jyotirmay Roy
 ***
-             I am Jyotirmay Roy
-***
-Here are some ideas to get you started:
+             
+Here are some ideas abot me:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
